@@ -1,4 +1,4 @@
-## An image is worth a thousand satoshis
+## A picture is worth a thousand satoshis
 
 
 
